@@ -3,4 +3,4 @@
 Bienvenidx :)
 ------------
 
-Me llamo Mario R. Velandia soy Ingeniero Químico 👨‍🔬 y músico 🪕. Puedes conocer más de mí [aquí](hhttps://www.instagram.com/mariovelandiac/ttp:// "aquí")
+Me llamo Mario R. Velandia soy Ingeniero Químico 👨‍🔬 y músico 🪕. Puedes conocer más de mí [aquí](https://www.instagram.com/mariovelandiac/ttp:// "aquí")
